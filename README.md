@@ -3,6 +3,8 @@ Dive into [Brainrot Craft](https://brainrot-craft.org) and create wild Italian m
 
 ![image](https://brainrot-craft.org/_next/image?url=%2Fimg%2Fbrainrot-craft.webp&w=640&q=75)
 
+Start to play Brainrot Craft for free at [https://brainrot-craft.org](https://brainrot-craft.org)
+
 ## About Brainrot Craft
 Welcome to Brainrot Craft, the ultimate game online where your creativity can soar in a whirlwind of delightfully mad Italian memes! This innovative craft-and-merge game invites players into a vibrant and chaotic world, encouraging you to channel your imagination and create bizarre yet beautiful combinations. In Brainrot Craft, you can fuse fantastical elements like cappuccino and ballerina, bringing forth eccentric creations such as the whimsical Ballerina Cappuccina. Every fusion you perform not only showcases your creativity but also immerses you in a delightful chaos that defines the essence of brainrot. Unleash your inner artist as you dive into this unique gameplay experience, uncovering iconic creations that will leave you laughing and astonished. Are you prepared to embrace the madness and display your artistry with Brainrot Craft? Join us on this exhilarating journey and transform pure chaos into glorious art with your unrivaled brainrot creations!
 
